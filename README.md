@@ -1,2 +1,2 @@
 # hello-world
-Meni podobaetsja ze vyvchaty. Ja dosjahnu uspihiv u navchanni
+Meni podobaetsja ce vyvchaty. Ja dosjahnu uspihiv u navchanni
